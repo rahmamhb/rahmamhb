@@ -6,7 +6,7 @@
 
 
 - 💻  Rahma Mihoub
-- 🌱 20 yo
+- 🌱 21 yo
 - 📫 Email me at: mihoubrahma@gmail.com
 - 💼 Connect with me on [LinkedIn](https://www.linkedin.com/in/rahma-mihoub-b2370b217/)
 - 🌟 Follow me on [Behance](https://www.behance.net/rahmamhb)
